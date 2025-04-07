@@ -30,15 +30,15 @@
 <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(3).gif" width="250" align="right">
 &nbsp;&nbsp;&nbsp;&nbsp;
 
-- Zionists/Pro-Israel.
-- System Fakeclaimers, Endogenic systems, or believers of tulpamancy.
-- Transphobes / TERF / Transmeds.
-- Any self-identified MAP/pedophile.
-- Proshippers (I am anti-harrassment, but I don't like proshippers and prefer to keep their content away from me.)
-- Supporters of generative AI, AI "art" or NFTs.
-- Zoophiles.
-- Anyone who tries to start discourse or arguments in ponytown.
-- I literally could not care less for arguing on a stupid pony game. You will just be blocked, hidden, or ignored.
+### - Zionists/Pro-Israel.
+### - System Fakeclaimers, Endogenic systems, or believers of tulpamancy.
+### - Transphobes / TERF / Transmeds.
+### - Any self-identified MAP/pedophile.
+### - Proshippers (I am anti-harrassment, but I don't like proshippers and prefer to keep their content away from me.)
+### - Supporters of generative AI, AI "art" or NFTs.
+### - Zoophiles.
+### - Anyone who tries to start discourse or arguments in ponytown.
+### - I literally could not care less for arguing on a stupid pony game. You will just be blocked, hidden, or ignored.
 
 <br clear="all">
 
