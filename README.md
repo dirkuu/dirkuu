@@ -12,12 +12,12 @@
 <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(2).gif" width="250" align="left">
 &nbsp;&nbsp;&nbsp;&nbsp;
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) - Usually found on the 18+ server in the Homestuck area       
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) - Happily taken by our [partner system](https://github.com/Gatixan). We're usually sitting with them.            
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) - We are a DID system who suffers from severe memory loss.              
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) - We are usually pretty talkative.    
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) - I love robots a lot. And puppets.            
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) - I'm an artist on both tumblr and twitter.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Usually found on the 18+ server** in the **Homestuck area**       
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Happily taken** by our [partner system](https://github.com/Gatixan). We're usually sitting with them.            
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **We are a DID system** who suffers from severe memory loss.              
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **We are usually pretty talkative.**    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I love robots** a lot. And **puppets.**            
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.
 
 &nbsp;&nbsp;&nbsp;&nbsp;
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dstriderbanner2.gifv)
