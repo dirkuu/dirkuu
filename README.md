@@ -40,8 +40,11 @@
 - Anyone who tries to start discourse or arguments in ponytown.
 - I literally could not care less for arguing on a stupid pony game. You will just be blocked, hidden, or ignored.
 
+<br clear="all">
+
 ---
-## <p align=center> LINKS </p>
+# <p align=center> LINKS </p>
+---
 <table align="center">
   <tr>
     <td><b>ART PAGES</b></td>
