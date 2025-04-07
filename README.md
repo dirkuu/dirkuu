@@ -3,8 +3,7 @@
 *<p align=center>* ![dirk drawing](https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(1).gif)
 
 <h2>
-  <p align="RIGHT">
-    <b>Dirk / John / Eridan.</b>
+
   </p>
 </h2>
 
