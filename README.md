@@ -1,4 +1,4 @@
-
+![profileviews](https://komarev.com/ghpvc/?username=dirkuu)
 
 *<p align=center>* ![dirk drawing](https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(1).gif)
 
