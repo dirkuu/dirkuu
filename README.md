@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=dirkuu&color=f2a400)
+*<p align=center>* ![](https://komarev.com/ghpvc/?username=dirkuu&color=f2a400)
 
 *<p align=center>* ![dirk drawing](https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(1).gif)
 
