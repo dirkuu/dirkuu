@@ -25,7 +25,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I love robots** a lot. And **puppets.**            
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.
 
-*<p align=center>*  ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel2.gifv) Yes, I like **MLP**. **Deal with it**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel1.gifv)
+*<p align=center>* ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel2.gifv) Yes, I like **MLP**. **Deal with it**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel1.gifv)
 
 &nbsp;&nbsp;&nbsp;&nbsp;
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dstriderbanner2.gifv)
