@@ -21,7 +21,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Usually found on the 18+ server** in the **Homestuck area**       
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Happily taken** by our [partner system](https://github.com/Gatixan). We're usually sitting with them.            
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **We are a DID system** who suffers from severe memory loss.              
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **We are usually pretty talkative.**    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Pony inspo is alright, copying is NOT.**    
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I love robots** a lot. And **puppets.**            
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.
 
@@ -75,5 +75,18 @@
 *<p align=center>* ![RAINBOW1](https://file.garden/ZclrkDwUoz3IMPJW/rainbow1.gifv) ![RAINBOW2](https://file.garden/ZclrkDwUoz3IMPJW/rainbow2.gifv) ![RAINBOW3](https://file.garden/ZclrkDwUoz3IMPJW/rainbow3.pnj) </p>
 *<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/dstriderblinky6.gifv) ![DIRK2](https://file.garden/ZclrkDwUoz3IMPJW/dstriderblinky4.gifv) ![DIRK3](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderblinky5.gifv) </p>
 
-## <p align=center> THE CHEESE
-*<p align=center>* ![THECHEESE](https://file.garden/ZclrkDwUoz3IMPJW/thecheese.gifv)
+<br clear="all">
+
+
+# *<p align=center>* MAIN SKINS 
+*<p align=center>* (INSPO ALLOWED, DO NOT COPY ANY SKINS)
+
+*<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-sign%20my%20ata%20-%20sys-stand-fixed-padded-ponyplush-1x.png) ![ERIDAN](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-wwhatevver%20-%20sys-stand-fixed-padded-1x.png) ![JOHN](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-swagbert%20-%20sys-stand-fixed-padded-1x.png) </p>
+
+## *<p align=center>* DIRK SPLINTERS
+
+*<p align=center>* ![MAPLEHOOF DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-mapledirk%20-%20sys-stand-fixed-padded-1x.png) ![BROBOT](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-_%20sign%20my%20ata%20_-stand-fixed-padded-1x.png) ![DASH DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-rainbow%20dirk%20-%20sys-stand-fixed-padded-ponyplush-1x.png) </p>
+
+## *<p align=center>* OTHERS
+
+*<p align=center>* ![MARCH ERIDAN](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-march%20-%20sys-stand-fixed-padded-1x.png) ![JANE CROCKER](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-Shucks%20buster!-stand-fixed-padded-toy123-1x.png) ![KARKAT](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-kk-stand-fixed-padded-1x.png) </p>
