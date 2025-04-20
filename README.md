@@ -90,3 +90,4 @@
 ## *<p align=center>* OTHERS
 
 *<p align=center>* ![MARCH ERIDAN](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-march%20-%20sys-stand-fixed-padded-1x.png) ![JANE CROCKER](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-Shucks%20buster!-stand-fixed-padded-toy123-1x.png) ![KARKAT](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-kk-stand-fixed-padded-1x.png) </p>
+*<p align=center>* ![DAVE STRIDER](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-tg-stand-fixed-padded-1x.png) ![SOLLUX](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-%E2%99%8A-stand-fixed-padded-1x.png) ![AKECHI](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-kechi-stand-fixed-padded-1x.png) </p>
