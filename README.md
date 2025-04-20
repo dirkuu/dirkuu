@@ -23,7 +23,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **We are a DID system** who suffers from severe memory loss.              
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Pony inspo is alright, copying is NOT.**    
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I love robots** a lot. And **puppets.**            
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.          
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **C + H is fine**, you're free to sit next to or with me without asking. Please no flirting though.
 
 *<p align=center>* ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel2.gifv) Yes, I like **MLP**. **Deal with it**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel1.gifv)
 
