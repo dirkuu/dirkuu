@@ -79,16 +79,14 @@
 <br clear="all">
 
 
-# *<p align=center>* MAIN SKINS 
+# *<p align=center>* MAIN SKINS (WIP)
 *<p align=center>* (INSPO ALLOWED, DO NOT COPY ANY SKINS)
 
-*<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-sign%20my%20ata%20-%20sys-stand-fixed-padded-ponyplush-1x.png) ![ERIDAN](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-wwhatevver%20-%20sys-stand-fixed-padded-1x.png) ![JOHN](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-swagbert%20-%20sys-stand-fixed-padded-1x.png) </p>
+N/A
 
 ## *<p align=center>* DIRK SPLINTERS
 
 *<p align=center>* ![MAPLEHOOF DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-mapledirk%20-%20sys-stand-fixed-padded-1x.png) ![BROBOT](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-_%20sign%20my%20ata%20_-stand-fixed-padded-1x.png) ![DASH DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-rainbow%20dirk%20-%20sys-stand-fixed-padded-ponyplush-1x.png) ![TRICKSTER DIRK](https://file.garden/ZclrkDwUoz3IMPJW/pony-town-%F0%9F%8D%AD%20_%20sign%20my%20ata%20-%20sys-stand-fixed-padded-1x.png) </p>
-
-
 
 ## *<p align=center>* OTHERS
 
