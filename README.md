@@ -1,6 +1,10 @@
 ### <p align=center> Go ahead and sign our: </p>
 #### <p align=center> [Strawpage](https://akechigoropersona.straw.page) || [Atabook](https://dirkuu.atabook.org)
 
+### <p align=center> I own a Dirk themed Discord
+
+*<p align=center>* [CLICK ME!!](https://discord.gg/ePHmTbECCD)
+
 *<p align=center>* ![](https://komarev.com/ghpvc/?username=dirkuu&color=f2a400)
 
 *<p align=center>* ![rainbow](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel10.gifv) 
