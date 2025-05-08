@@ -16,6 +16,7 @@
   </p>
 </h2>
 
+*<p align=center>* [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rhkr6n4oym83dtdmjwfq77a6e&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=f2a400)](https://github.com/kittinan/spotify-github-profile)
 
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderbanner.gifv)
 
@@ -66,7 +67,7 @@
   <tr>
     <td><b>ART PAGES</b></td>
     <td><a href="https://www.tumblr.com/foxxism">Tumblr</a></td>
-    <td><a href="https://x.com/kavehtismed">Twitter</a></td>
+    <td><a href="https://x.com/myriadserased">Twitter</a></td>
   </tr>
   <tr>
     <td><b>PERSONAL PAGES</b></td>
