@@ -43,8 +43,8 @@
 <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(3).gif" width="250" align="right">
 &nbsp;&nbsp;&nbsp;&nbsp;
 
- - Zionists/Pro-Israel.
- - System Fakeclaimers, Endogenic systems, or believers of tulpamancy.
+ - Zionists/Pro-Israel, Nazis, and bigots.
+ - System Fakeclaimers, Endogenic "systems", or believers of tulpamancy, or system hopping.
  - Transphobes / TERF / Transmeds.
  - Any self-identified MAP/pedophile.
  - Proshippers (I am anti-harrassment, but I don't like proshippers and prefer to keep their content away from me.)
