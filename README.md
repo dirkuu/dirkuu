@@ -9,7 +9,18 @@
 
 *<p align=center>* ![rainbow](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel10.gifv) 
 
-*<p align=center>* ![dirk drawing](https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(1).gif)
+<table align="center">
+  <tr>
+    <td><b>ART PAGES</b></td>
+    <td><a href="https://www.tumblr.com/foxxism">Tumblr</a></td>
+    <td><a href="https://x.com/myriadserased">Twitter</a></td>
+  </tr>
+  <tr>
+    <td><b>PERSONAL PAGES</b></td>
+    <td><a href="https://rentry.co/myriadstruth">Rentry Directory</a></td>
+    <td><a href="https://akechigoropersona.straw.page">Strawpage Directory</a></td>
+  </tr>
+</table>
 
 <h2>
 
@@ -17,6 +28,8 @@
 </h2>
 
 *<p align=center>* [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rhkr6n4oym83dtdmjwfq77a6e&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=f2a400)](https://github.com/kittinan/spotify-github-profile)
+
+*<p align=center>* ![dirk drawing](https://file.garden/ZclrkDwUoz3IMPJW/dirk-strider-homestuck%20(1).gif)
 
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderbanner.gifv)
 
@@ -63,18 +76,6 @@
 
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel8.gifv)
 
-<table align="center">
-  <tr>
-    <td><b>ART PAGES</b></td>
-    <td><a href="https://www.tumblr.com/foxxism">Tumblr</a></td>
-    <td><a href="https://x.com/myriadserased">Twitter</a></td>
-  </tr>
-  <tr>
-    <td><b>PERSONAL PAGES</b></td>
-    <td><a href="https://rentry.co/myriadstruth">Rentry Directory</a></td>
-    <td><a href="https://akechigoropersona.straw.page">Strawpage Directory</a></td>
-  </tr>
-</table>
 
 *<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/0843505975ab783555fa7b4d694a2603e3dfa718.gifv) </p>
 *<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/dirklbinky1.gifv) ![DIRK2](https://file.garden/ZclrkDwUoz3IMPJW/dirkblinky2.pnj) ![DIRK3](https://file.garden/ZclrkDwUoz3IMPJW/dirkblinky3.pnj) </p>
