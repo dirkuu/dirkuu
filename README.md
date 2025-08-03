@@ -1,5 +1,5 @@
 ### <p align=center> Go ahead and sign our: </p>
-#### <p align=center> [Strawpage](https://akechigoropersona.straw.page) || [Atabook](https://dirkuu.atabook.org)
+#### <p align=center> [Strawpage](https://eridirk.straw.page) || [Atabook](https://dirkuu.atabook.org)
 
 ### <p align=center> I own a Dirk themed Discord
 
@@ -37,14 +37,14 @@
 &nbsp;&nbsp;&nbsp;&nbsp;
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Usually found on the 18+ server** in the **Homestuck area**       
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Happily taken** by our [partner system](https://github.com/Gatixan). We're usually sitting with them.            
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Happily taken** by our [partner](https://github.com/Gatixan). We're usually sitting with them.            
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **We are a DID system** who suffers from severe memory loss.              
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Pony inspo is alright, copying is NOT.**    
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I love robots** a lot. And **puppets.**            
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.          
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **C + H is fine**, you're free to sit next to or with me without asking. Please no flirting.
 
-*<p align=center>* ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel2.gifv) Yes, I like **MLP**. **Deal with it**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel1.gifv)
+*<p align=center>* ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel2.gifv) I'm **20% cooler**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel1.gifv)
 
 &nbsp;&nbsp;&nbsp;&nbsp;
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dstriderbanner2.gifv)
