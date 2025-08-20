@@ -62,6 +62,7 @@
  - Members of the True Crime Community.
  - Zoophiles.
  - I've never had good interactions with people who identify as IRLs of characters, so stay away, thanks.
+ - Additionally, anyone who actually believes in things like "Doubles" and says shit like "no doubles."
  - Anyone who tries to start discourse or arguments in ponytown.
  - I literally could not care less for arguing on a stupid pony game. You will just be blocked, hidden, or ignored.
 
