@@ -37,7 +37,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Usually found on the 18+ server** in the **Homestuck area**       
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Happily taken** by our [partner](https://github.com/Gatixan). We're usually sitting with them.            
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Taken** by our [partner](https://github.com/Gatixan). We're usually sitting with them.            
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I am a DID system** who suffers from severe memory loss.              
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Pony inspo is alright, copying is NOT.**    
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I love robots** a lot. And **puppets.**            
