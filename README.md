@@ -53,11 +53,11 @@
 <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece3.png" width="400" align="right">
 
 *<p align=center>* **DO NOT INTERACT:**
+ - I don't fuck with proshippers.
  - Zionists/Pro-Israel, Nazis, and bigots.
- - System Fakeclaimers, Endogenic "systems", believers of tulpamancy, or system hopping.
+ - DID/OSDD Fakeclaimers, Endogenic "systems", believers of "tulpamancy", or "system hopping."
  - Transphobes / Terf / wandering / transmeds.
  - Any self-identified "MAP"/pedophile or zoophile.
- - I don't fuck with Proshippers.
  - Supporters of generative AI, AI "art" or NFTs.
  - Members of the True Crime Community.
  - IRLs of characters.
