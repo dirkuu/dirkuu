@@ -55,21 +55,20 @@
 *<p align=center>* **DO NOT INTERACT:**
  - Zionists/Pro-Israel, Nazis, and bigots.
  - System Fakeclaimers, Endogenic "systems", believers of tulpamancy, or system hopping.
- - Transphobes / TERF/SWERF / Transmeds.
- - Any self-identified "MAP"/pedophile.
- - Proshippers (I am anti-harrassment, but I don't like proshippers and prefer to keep their content away from me.)
+ - Transphobes / Terf / wandering / transmeds.
+ - Any self-identified "MAP"/pedophile or zoophile.
+ - I don't fuck with Proshippers.
  - Supporters of generative AI, AI "art" or NFTs.
  - Members of the True Crime Community.
- - Zoophiles.
- - I've never had good interactions with people who identify as IRLs of characters, so stay away, thanks.
+ - IRLs of characters.
  - Additionally, anyone who actually believes in things like "Doubles" and says shit like "no doubles."
- - Anyone who tries to start discourse or arguments in ponytown.
- - I literally could not care less for arguing on a stupid pony game. You will just be blocked, hidden, or ignored.
+ - Anyone who tries to start discourse or arguments on ponytown.
+ - I literally could not care less for arguing on a pony game. You will just be blocked, hidden, or ignored.
 
 
 *<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece4.png" width="500" align="center">
 
-&nbsp;&nbsp;&nbsp;&nbsp;
+    
 
 <br clear="all">
 
@@ -77,8 +76,8 @@
 
 
 *<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/0843505975ab783555fa7b4d694a2603e3dfa718.gifv) </p>
-*<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/dirklbinky1.gifv) ![DIRK2](https://file.garden/ZclrkDwUoz3IMPJW/dirkblinky2.pnj) ![DIRK3](https://file.garden/ZclrkDwUoz3IMPJW/dirkblinky3.pnj) </p>
+*<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/dirklbinky1.gifv) ![Dirk2](https://file.garden/ZclrkDwUoz3IMPJW/dirkblinky2.pnj) ![DIRK3](https://file.garden/ZclrkDwUoz3IMPJW/dirkblinky3.pnj) </p>
 *<p align=center>* ![RAINBOW1](https://file.garden/ZclrkDwUoz3IMPJW/rainbow1.gifv) ![RAINBOW2](https://file.garden/ZclrkDwUoz3IMPJW/rainbow2.gifv) ![RAINBOW3](https://file.garden/ZclrkDwUoz3IMPJW/rainbow3.pnj) </p>
-*<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/dstriderblinky6.gifv) ![DIRK2](https://file.garden/ZclrkDwUoz3IMPJW/dstriderblinky4.gifv) ![DIRK3](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderblinky5.gifv) </p>
+*<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/dstriderblinky6.gifv) ![Dirk2](https://file.garden/ZclrkDwUoz3IMPJW/dstriderblinky4.gifv) ![DIRK3](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderblinky5.gifv) </p>
 
 <br clear="all">
