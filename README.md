@@ -3,7 +3,8 @@
 ### <p align=center> Go ahead and sign: </p>
 #### <p align=center> [Strawpage](https://eridirk.straw.page) | [Atabook](https://dirkuu.atabook.org)
 
-*<p align=center>* [Discord](https://discord.gg/R5uShVtq4c)
+### *<p align=center>*  [DISCORD SERVER](https://discord.gg/nwjBMHHZmS)
+*<p align=center>* JOIN **DIRKCORD** TODAY!
 
 *<p align=center>* ![](https://komarev.com/ghpvc/?username=dirkuu&color=f2a400)
 
