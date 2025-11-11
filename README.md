@@ -1,4 +1,4 @@
-*<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel5.gifv)
+*<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/Rainbow%20Dash%20Pixels/rainbowpixel5.gifv)
 
 ### <p align=center> Go ahead and sign: </p>
 #### <p align=center> [Strawpage](https://eridirk.straw.page) | [Atabook](https://dirkuu.atabook.org)
@@ -34,7 +34,7 @@
 
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderbanner.gifv)
 
-<img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece2.png" width="400" align="left">
+<img src="https://file.garden/ZclrkDwUoz3IMPJW/Dirkcord%20Graphics/dirklayoutpiece2.png" width="400" align="left">
     
 
       ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **Usually found on the 18+ server** in the **Homestuck area**       
@@ -45,13 +45,13 @@
       ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **I'm an artist** on both tumblr and twitter.          
       ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/dirkicon.gifv) **You're free to sit with me without asking.** No flirting.
 
-*<p align=center>* ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel2.gifv) I'm **20% cooler**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel1.gifv)
+*<p align=center>* ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/Rainbow%20Dash%20Pixels/rainbowpixel3.gifv) I'm **20% cooler**. ![ICON](https://file.garden/ZclrkDwUoz3IMPJW/Rainbow%20Dash%20Pixels/rainbowpixelflipped.gif)
 
     
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dstriderbanner2.gifv)
 <br clear="all">
 
-<img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece3.png" width="400" align="right">
+<img src="https://file.garden/ZclrkDwUoz3IMPJW/Dirkcord%20Graphics/dirklayoutpiece3.png" width="400" align="right">
 
 *<p align=center>* **DO NOT INTERACT:**
  - I don't fuck with proshippers.
@@ -67,13 +67,13 @@
  - I literally could not care less for arguing on a pony game. You will just be blocked, hidden, or ignored.
 
 
-*<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece4.png" width="500" align="center">
+*<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/Dirkcord%20Graphics/dirklayoutpiece4.png" width="500" align="center">
 
     
 
 <br clear="all">
 
-*<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/rainbowpixel8.gifv)
+*<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/Rainbow%20Dash%20Pixels/rainbowpixel8.gifv)
 
 
 *<p align=center>* ![DIRK](https://file.garden/ZclrkDwUoz3IMPJW/0843505975ab783555fa7b4d694a2603e3dfa718.gifv) </p>
