@@ -4,7 +4,7 @@
 #### <p align=center> [Strawpage](https://distrides.straw.page) | [Atabook](https://dirkuu.atabook.org)
 
 ### *<p align=center>*  [DISCORD SERVER](https://discord.gg/nwjBMHHZmS)
-*<p align=center>* JOIN **DIRKCORD** TODAY!
+*<p align=center>* JOIN **DIRKCORD** TODAY! (16+)
 
 *<p align=center>* ![](https://komarev.com/ghpvc/?username=dirkuu&color=f2a400)
 
