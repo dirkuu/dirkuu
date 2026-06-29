@@ -1,7 +1,7 @@
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/Rainbow%20Dash%20Pixels/rainbowpixel5.gifv)
 
 ### <p align=center> Go ahead and sign: </p>
-#### <p align=center> [Strawpage](https://eridirk.straw.page) | [Atabook](https://dirkuu.atabook.org)
+#### <p align=center> [Strawpage](https://distrides.straw.page) | [Atabook](https://dirkuu.atabook.org)
 
 ### *<p align=center>*  [DISCORD SERVER](https://discord.gg/nwjBMHHZmS)
 *<p align=center>* JOIN **DIRKCORD** TODAY!
