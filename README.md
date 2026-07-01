@@ -57,14 +57,14 @@
  - I don't fuck with proshippers.
  - Zionists/Pro-Israel, Nazis, and bigots.
  - DID/OSDD Fakeclaimers, Endogenic "systems", believers of "tulpamancy", or "system hopping."
- - Transphobes / Terf / wandering / transmeds.
+ - Transphobes / Terf / transmeds.
  - Any self-identified "MAP"/pedophile or zoophile.
  - Supporters of generative AI, AI "art" or NFTs.
  - Members of the True Crime Community.
  - IRLs of characters.
  - Additionally, anyone who actually believes in things like "Doubles" and says shit like "no doubles."
- - Anyone who tries to start discourse or arguments on ponytown.
- - I literally could not care less for arguing on a pony game. You will just be blocked, hidden, or ignored.
+ - Anyone who tries to start discourse or arguments in Ponytown.
+ - I literally could not care less about arguing on a pony game. You will just be blocked, hidden, or ignored.
 
 
 *<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/Dirkcord%20Graphics/dirklayoutpiece4.png" width="500" align="center">
