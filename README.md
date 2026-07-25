@@ -11,13 +11,10 @@
 <table align="center">
   <tr>
     <td><b>ART PAGES</b></td>
-    <td><a href="https://www.tumblr.com/foxxism">Tumblr</a></td>
-    <td><a href="https://x.com/myriadserased">Twitter</a></td>
+    <td><a href="https://www.tumblr.com/tacitustempered">Tumblr</a></td>
+    <td><a href="https://x.com/tacitustempered">Twitter</a></td>
   </tr>
   <tr>
-    <td><b>PERSONAL PAGES</b></td>
-    <td><a href="https://rentry.co/myriadstruth">Rentry Directory</a></td>
-    <td><a href="https://akechigoropersona.straw.page">Strawpage Directory</a></td>
   </tr>
 </table>
 
@@ -27,8 +24,6 @@
 
   </p>
 </h2>
-
-*<p align=center>* [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rhkr6n4oym83dtdmjwfq77a6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&mode=light&bar_color=f2a400&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 *<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece1.png" width="500" align="center">
 
