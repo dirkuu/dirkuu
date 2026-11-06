@@ -1,7 +1,7 @@
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/Rainbow%20Dash%20Pixels/rainbowpixel5.gifv)
 
 ### <p align=center> Go ahead and sign: </p>
-#### <p align=center> [Strawpage](https://distrides.straw.page) | [Atabook](https://dirkuu.atabook.org)
+#### <p align=center> [Strawpage](https://detectivepony.straw.page) | [Atabook](https://dirkuu.atabook.org)
 
 ### *<p align=center>*  [DISCORD SERVER](https://discord.gg/nwjBMHHZmS)
 *<p align=center>* JOIN **DIRKCORD** TODAY! (16+)
@@ -22,11 +22,9 @@
 *<p align=center>* [ART CREDIT](https://x.com/bloobydabloob)
 
 <h2>
-
-  </p>
 </h2>
 
-*<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/dirklayoutpiece1.png" width="500" align="center">
+*<p align=center>* <img src="https://file.garden/ZclrkDwUoz3IMPJW/Dirkcord%20Graphics/dirklayoutpiece1.png" width="500" align="center">
 
 *<p align=center>* ![HI](https://file.garden/ZclrkDwUoz3IMPJW/dirkstriderbanner.gifv)
 
